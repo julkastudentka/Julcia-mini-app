@@ -1,1 +1,0 @@
-# Julcia-mini-app
